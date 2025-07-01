@@ -220,4 +220,45 @@ What I'm still confused about: I get confused about how exactly to utilize all t
 **3. Any blockers or challenges?**
 - My Japanese class temporarily obstructed my ability to work.
 
+## [Date: 06-28-2025]
+**1. What did I accomplish yesterday?**
+- Made progress on the assignment and studied
+
+**2. What will I do today?**
+- Work and study more
+
+**3. Any blockers or challenges?**
+- Fatigue
+
+## [Date: 06-29-2025]
+**1. What did I accomplish yesterday?**
+- Made significant progress on the assignment and completed a quiz
+
+**2. What will I do today?**
+- Try to finish the assignment
+
+**3. Any blockers or challenges?**
+- My parents made me go out with them and I slept for over 12 hours, losing most of the day in the progress.
+
+## [Date: 06-30-2025]
+**1. What did I accomplish yesterday?**
+- Worked on assignment
+
+**2. What will I do today?**
+- Try to finish as much as possible for the first checkpoint
+
+**3. Any blockers or challenges?**
+- Sleep deprivation.
+
+## [Date: 07-1-2025]
+**1. What did I accomplish yesterday?**
+- Did as much as I could.
+
+**2. What will I do today?**
+- Step up more thoroughly to my role in the group.
+
+**3. Any blockers or challenges?**
+- I got sick today.
+
+
 (DO NOT DELETE ENTRIES, ADD MORE)
