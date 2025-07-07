@@ -260,5 +260,54 @@ What I'm still confused about: I get confused about how exactly to utilize all t
 **3. Any blockers or challenges?**
 - I got sick today.
 
+## [Date: 07-2-2025]
+**1. What did I accomplish yesterday?**
+- Worked.
+
+**2. What will I do today?**
+- Try to work with my group.
+
+**3. Any blockers or challenges?**
+- Myself and poor communication. I failed to truly understand and step up to my role in the group.
+
+## [Date: 07-3-2025]
+**1. What did I accomplish yesterday?**
+- I worked.
+
+**2. What will I do today?**
+- Try to work more.
+
+**3. Any blockers or challenges?**
+- Sleep deprivation and stress
+
+## [Date: 07-4-2025]
+**1. What did I accomplish yesterday?**
+- Did as much as I could.
+
+**2. What will I do today?**
+- Step up more thoroughly to my role in the group.
+
+**3. Any blockers or challenges?**
+- I got sick today.
+
+## [Date: 07-5-2025]
+**1. What did I accomplish yesterday?**
+- Worked. Or rather, tried.
+
+**2. What will I do today?**
+- Step up more thoroughly to my role in the group.
+
+**3. Any blockers or challenges?**
+- My desire to have fun.
+
+## [Date: 07-6-2025]
+**1. What did I accomplish yesterday?**
+- Worked and tried to understand what to do.
+
+**2. What will I do today?**
+- Try to ask sir.
+
+**3. Any blockers or challenges?**
+- Inner conflict between having fun and meeting with friends or suffering all day.
 
 (DO NOT DELETE ENTRIES, ADD MORE)
